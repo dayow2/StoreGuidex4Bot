@@ -1,0 +1,1 @@
+# StoreGuidex4Bot
